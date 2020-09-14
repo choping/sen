@@ -6,4 +6,4 @@ http://theoldreader.com
 
 https://www.zhihu.com/
 
-choping@sen.today
+choping@foxmail.com
