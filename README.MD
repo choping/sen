@@ -1,9 +1,21 @@
 # Choping Sen
 
-http://xian.name
+xian.name
 
-http://theoldreader.com
+theoldreader.com
 
-https://www.zhihu.com/
+zhihu.com
 
-choping@foxmail.com
+1lib.net
+
+github.com
+
+docs.qq.com
+
+spssau.com
+
+iloveimg.com
+
+qiye.163.com
+
+Choping Sen    choping@sen.today
