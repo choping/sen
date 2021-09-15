@@ -7,8 +7,8 @@ universes, the photon’s physics characteristic and constant in each small univ
 physics law and constant of this small universe. No matter what circumstance it is, anything
 happening in the universe seems that its evolution is based on the science laws. All these are
 affected by photon’s physics characteristic and constant. It is the direction for people of modern
-physics to study photon’s physics characteristic and constant.
-                                                                                  ------Choping Sen
+physics to study photon’s physics characteristic and constant.                                                                                  
+                                                                                Choping Sen
 
 Choping Sen   
 choping@sen.today 
